@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @laisrosalini
 - 👀 I’m interested in recruiting for tech positions! 💞️
--
 
 
 <!---
